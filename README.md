@@ -1,0 +1,1 @@
+# resumo_lab_armaz-nuvem
